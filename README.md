@@ -9,6 +9,6 @@
 - 🤔 I’m looking for help with techs stuff to learn more
 - 💬 Ask me about games and anything!
 - 🎮 **Top Games**: *Monster hunter series*, *Sekiro*, *Dota 2*
-- 📫 **How to Reach Me**: [facebook account](https://web.facebook.com/hikris.canete/)
+- 📫 **How to Reach Me**: [Facebook account](https://web.facebook.com/hikris.canete/)  [Gmail](alankiller207@gmail.com)
 
 Thanks for stopping by!
